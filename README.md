@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jesús Bautista Villar.
-- 📫 You can contact with me by email: jesbauti20@gmail.com
+- 📫 You can reach me via email at <jesbauti20@gmail.com>
 - 🎥 https://www.youtube.com/channel/UCpuB76PNS3qbivXvMHw_jNg 
 
 <!---
